@@ -8,7 +8,7 @@
    │││├─┤ │ │  ├─┤ c''  )' ├─┘││ ┬
    └┴┘┴ ┴ ┴ └─┘┴ ┴  ''-''  ┴  ┴└─┘
                           
-'''
+
 find this app helpful? ... 
 cashapp@travisodellart or paypal.me/odellcreativegroup
 
